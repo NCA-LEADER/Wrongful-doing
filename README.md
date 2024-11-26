@@ -1,2 +1,0 @@
-# Wrongful-doing
-The disgrace 
